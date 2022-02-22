@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning flutter 
 - 💞️ I’m looking to collaborate on porgrammers to learn more
 - 📫 How to reach me  
-  twitter - @AtifTheProfess1
-  email - atifqrbah@gmail.com
+  twitter - @A_T_F_10
+  email - rrooro710@gamil.com
 
 <!---
 A-T-F-10/A-T-F-10 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
