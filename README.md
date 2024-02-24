@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on porgrammers to learn more
 - 📫 How to reach me  
 - Twitter - @A_T_F_10
-- Email - tyrt396@gmail.com
+- Email - a.t.f.dev10@gmail.com
 - Linkedin - https://www.linkedin.com/in/atif-the-professional-679768243/
 - Discord - A-T-F-10#9549
 
