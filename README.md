@@ -5,7 +5,6 @@
 - 📫 How to reach me  
 - Twitter - @A_T_F_10
 - Email - a.t.f.dev10@gmail.com
-- Linkedin - https://www.linkedin.com/in/atif-the-professional-679768243/
 - Discord - A-T-F-10#9549
 
 <!---
